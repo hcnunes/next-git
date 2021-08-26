@@ -5,6 +5,6 @@ Olá, sou Hygor Sandrews, aluno do módulo de gerencia de configuracao do curso 
 ## Curiosidades
 
 - Eu bebo cerveja, mas nem tanto
-- Eh topster
+- Uhul em barra
 - Massa, boy
 
